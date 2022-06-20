@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @PoormanRekt
 - 👀 Poorman interested in poormen
 - 🌱 I’m currently learning about richmen
-- 💞️ I’m looking to collaborate on getting rich
 - 📫 How to reach me ... don't
 
 <!---
